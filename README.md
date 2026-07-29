@@ -1,2 +1,2 @@
-# FANDOMs-that-I-am-in
-proud multifan person HAHA
+# fandoms
+> Ｉ ｐｒｏｂａｂｌｙ ｆｏｒｇｏｔ ｓｏｍｅ ｂｅｃａｕｓｅ ｏｆ ｍｙ ＳＴＵＰＩＤ ＭＥＭＯＲＹ 
